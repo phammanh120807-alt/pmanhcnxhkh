@@ -1,1 +1,236 @@
-# pmanhcnxhkh
+Chương 1:
+Từ điền
+- Trong quá trình thống trị, giai cấp tư sản -> mác ăngghen
+- đã tạo ra lực lượng sx (kp năng suất lao động) khổng lồ -> tuyên ngôn đảng cộng sản
+- mâu thuẫn chủ yếu trong chủ nghĩa tư bản: mâu thuẫn llsx mang tính xã hội hóa với qhsx chiếm hữu tư nhân
+- mảnh đất hiện thực: tiền đề kte-xh
+- T16: cnxh k tưởng đã k vạch ra … -> 3 nguồn gốc cấu thành cn mác -> lênin
+- T24: trong tp làm gì của lênin -> xanhximong, phurie, oen
+- nghiên cứu ddkien ra đời là nhiệm vụ cnxh học
+- T25: học thuyết mác là học thuyết vạn năng, chính xác (mác: tư bản, lênin: đế quốc)
+- Lênin là người vận dụng ptrien sáng tạo của chủ nghĩa mác, chống trào lưu phi mác xít, đảng kiểu mới -> lênin, cách mạng dân chủ ts kiểu mới, liên minh công-nông và tác tầng lớp lđ  -> lenin
+- Cách mạng vô sản đã nổ ra và thắng lợi -> lênin
+- T28: hệ thống chuyên chính vô sản: đảng bôn sê vích, nhà nước xô viết, tổ chức công đoàn  -> lênin
+- T39: 1 hình thức đấu tranh kiên trì đổ máu,... chuyên chính vô sản -> lênin
+- Dân chủ tư sản dân chủ hơn gấp triệu lần -> lênin
+- Cương lĩnh dân tộc -> lênin, ktế hàng hóa nhiều tp -> lênin
+- Vô sản các nước và dân tộc đoàn kết lại -> lênin
+- vô sản các nước liên hiệp lại -> mác “lao động”-> hcm
+- Stalin nối mác với lênin thành cn mác lênin
+Nội dung
+- SỰ ra đời của chủ nghĩa xã hội học
+- điều kiện kinh tế xã hội: cuộc cm cn (40 tk 19)
+- nền sản xuất đại công nghiệp
+- tuyên ngôn đảng cộng sản (tác phẩm thi duy nhất vt giữa mác và ăngghen
+- Phong trào đấu tranh của gcts: phong trào pháp, đức, anh (Công xã Paris và cách mạng tháng mười không nằm trong phong trào của giai cấp công nhân ở giai đoạn những năm 40 của thế kỷ 19)
+- Phong trào có khẩu hiệu “cộng hòa” “chết” là lyon, pháp
+- Tiền đề kh-tn: tiến hóa, tế bào,.... (mang tính vạch thời đại)
+- thuyết tế bào trang bị thế giới quan duy vật (2 phát minh còn lại là pp luận bc)
+- Kinh tế chính trị, triết học cổ điển, cnxh k tưởng phê phán (giá trị: phê phán (không chỉ ra bản chất), đưa ra gtri xh tương lai, thức tỉnh ý thức đấu tranh) (không phát hiện ra, không chỉ ra -> đáp án đúng)
+- Vai trò của Mác - Ăngghen (3 phát kiến)
+- CN duy vật lịch sử: khẳng định về mặt triết học
+- Học thuyết gtri thặng dư -> phát kiến mà khẳng định về sự thắng lợi, sự sụp đổ của chủ nghĩa tư bản và sự thắng lợi.    (1) lĩnh vực tiết học (2) lĩnh vực kte                          
+- SMLS toàn thế giới của gccn (đưa cnxh từ k tưởng thành khoa học) (3) lĩnh vực ctri - xh
+- Tuyên ngôn đảng cộng sản (2/1948) 	-> cương lĩnh ctri đầu tiên của gccn
+- chỉ ra 3 vấn đề: chính đảng cách mạng, logic sự sụp đổ, địa vị kte xh của gccn
+- Các giai đoạn phát triển cnxh học (3): (mác, lênin, sau lênin) 48-71, 71-95, 95-17
+- mác 1871
+- lênin 1917
+- sau lênin 1991
+- bộ tư bản (1867) (mác): tp trình bày chủ yếu về cnxh học 
+- 1871-1895: Công xã pari: hình thái nhà nước vô sản đầu tiên
+- nhà nc xhcn đầu tiên 1917
+- Chống đuyrinh (1871)
+- ĐCS Trung quốc cầm quyền: định hướng xd nước văn chủ văn minh (2050), thời kì đổi mới (1978) (cầm quyền khoa học, dân chủ, pháp luật)
+- Việt nam: dh6: nhìn, đánh giá, nói
+
+- Chương 2: sứ mệnh lịch sử của gccn
+- Từ điền:
+- Thực hiện sứ mệnh, sự nghiệp giải phóng đó là giai cấp vô sản hiện đại
+- liên minh tự nhiên giữa các giai cấp công nhân: nông dân
+- Khái niệm gccn: là 1 tập đoàn lao động, không phải cá thể, 
+-> lao động gián tiếp và trực tiếp
+-> là con đẻ của nền xs đại công nghiệp
+- Phân biệt địa vị kt-xh và ctri-xh:
+- Phân biệt đk khách quan và chủ quan trg vc hình thành smls
+- Gccn hiện nay và truyền thống: giống: vẫn còn bi bóc lột gttd, chiếm hữu tư nhân tlsx
+- khác: trí tuệ hóa, trung lưu hóa, giữ vai trò lãnh đạo
+- Gccn việt nam: ra đời trong cuộc khai thác  thuộc địa (đầu tk 20), ra đời trước gcts
+- gắn bó với tca các giai cấp tầng lớp khác
+- tăng nhanh về số lượng và chất lượng, đa dạng trong mọi ngành nghề
+- ptrien với cnh hdh, tài nguyên tri thức, môi trường
+- Sự khác nhau gccn trong công trường thủ công (sử dụng) trong công nghiệp (phục vụ)
+- VN theo định hướng xhcn: công nhân trong kv ktr nhà nước giữ vai trò tiêu biểu, lực lượng trọng tâm là công nhân tri thức
+- Muốn thực hiện smls: cgi có hcm thì chọn
+- mâu thuẫn cơ bản ptsx xh: mâu thuẫn lợi ích (gccn và gcts)
+- GCCN có tinh thần cách mạng triệt để nhất
+- Lợi ích chung cả xh: giải phóng con người
+- trong tiến trình ptrien xh, hệ tư tưởng, hệ giá trị mới về: lao động, công bằng, dân chủ, bình đẳng, tự do
+- muốn ptrien ctri: ptrien Đảng
+- muốn ptrien kte: ptrien nền kte đại cn
+- mác: không hòa bình không hiệp thương
+- trong smls gccn, kinh tế là quan trọng nhất, tiền đề vật chất quyết định tiền đề khác
+- ở vn do đkiện → giải phóng dân tộc trước, ở các nc khác thì gpgc trước
+- hiện nay trong đấu tranh vẫn còn, sâu xa là vẫn còn
+- gccn hiện nay k có quyền quyết định trong phân phối và sở hữu sx (vẫn thuộc về tư sản)
+- smls gccn hiện nay là xóa bỏ chế độ bóc lột giá trị thặng dư (tiền đề)
+- ở vn, muốn hoàn thành smls -> luôn có từ Đảng -> CNH HĐH
+- hệ giá trị luôn phải có “lao động” làm tiền đề
+- gccn là gc tinh thần cách mạng triệt để nhất
+- ở nước xhcn, gccn mới có quyền phân phối, sở hữu, tổ chức, quản lí
+- ở vn, theo tthcm, để xd gccn -> xd con người mới, tác phong công nghiệp, hệ gtri người việt am
+- muốn xd gccn phải xd ptsx mới, tạo vc làm cho gccn
+- Chương 3: CNXH và TKQĐ lên CNXH
+- Phân biệt: TKQD- CNXH- CNCS
+- Câu nói: 
+- T88: Phê phán cương lĩnh Gôta: giữa xhcn và cncs có
+- T88: không còn nghi ngờ gì nữa 
+- Dưới chính quyền xô viết thì xhcn là ba phần tư
+- Đặc trưng: đại hội 7(1991): 6 đặc trưng, 8 phương nướng đại hội 
+- Thay cho xã hội cũ, xã hội mới -> tuyên ngôn đcs
+- đk phát triển tự do cho mỗi ng là điều kiện tự do cho tca mng -> tuyên ngôn đcs
+- trong gd xh cscn: cnxh là không thể ngay lập tức thủ tiêu
+- văn hóa-xã hội, là mục tiêu, động lực, trọng tâm của ptrien kte
+- Ngta chỉ trở thành người cộng sản -> Lênin
+- TKQD giữa cntb và cnxh
+- Giữa cntb và xhcn là tki cải biến cách mạng còn nhiều dấu vết xh cũ để lại -> mác
+- điều kiện liên minh: gcvs và toàn thể quần chúng cần lao -> lênin
+- giải phóng con người 1 cách toàn diện
+Nội dung:
+- cnxh hiểu dưới 4 góc độ:1 phong trào đấu tranh, thực tiễn ->  1 trào lưu tư tưởng (tôn giáo) -> cnxhkh -> 1 chế độ xh
+- Đặc trưng của cnxh (6 đặc trưng);  nddoan lao động làm (kphai là)
+- Phương hướng TKQĐ lên xhcn ở VN ( khó), 8 phương hướng (chọn cái kphai phương hướng) (15 câu thi) CNH HĐH, KTTT, văn hóa bản sắc, an ninh quốc phòng, đối nội đối ngoại, dân chủ xhcn, pháp quyền, đảng trong sạch vững mạnh
+- cơ sở hình thành xhcs: học thuyết hình thái kt-xh
+- llsx do gctb sinh ra: gcvs và gccn hiện đại (không có gcvs)
+-tiền đề vc hình thành hình thái: sự trưởng thành của gccn (không phải đông đảo), sự phát triển của llsx
+- chuyên chính vô sản là gì: là hình thức nhà nước kiểu mới
+- quá độ gián tiếp (tất cả các nước quá độ) muốn nhảy vọt có 3 đk (giúp đỡ các nc, llsx ptrien,...)
+- dkien, bối cảnh các nc lạc hậu trong tk 20 (lênin là phát triển qtrinh rút ngắn ở các nước)
+- thời đai ngày nay là thời đại qđ từ cntb lên cnxh trên toàn thế giới
+- trong cnxh: văn hóa là yếu tố tinh thần
+- ở vn, kte nhà nước giữ vai trò chủ đạo, kte tư nhân giữ vai trò không chủ đạo
+- phân phối trong tkqd: phân phối lao động là chủ yếu (mác gọi là lđ, theo mức độ đóng góp là hưởng theo phúc lợi)
+- nhà nước pháp quyền
+- để ptrien: CNH HDH, ktr tri thức
+- con đường cm xh dân chủ phải thực hiện cách mạng vô sản
+- mục tiêu qtr nhất của cnxh: giải phóng con người-
+- Chương 4: Dân chủ
+Từ điền:
+- T128: nhân dân có quyền lợi làm chủ thì phải có nghĩa vụ…
+- Chế độ kinh tế quyết định chế độ chính trị
+- Thực hiện dân chủ là chìa khóa vạn năng -> hcm
+- cnxh là sự phản kháng và đấu tranh chống bóc lột của ng lđ -> lênin
+- người đưa độc lập dân tộc gắn liền cnxh -> hcm
+- hệ thống xnch: Đảng cộng sản VN nêu ra
+- Giữ vững và tăng cường   bản chất gccn của đảng -> Đh 6
+- Chuyên chính của gccn -> tuyên ngôn đảng cộng sản
+- hình thức chính thể nào gần giống hình thức xhcn-> cộng hòa đại nghị
+- Bất cứ 1 nhà nước nào cũng đều dùng bạo lực -> lênin
+- tki hy lạp cổ đại: nhân dân cai trị. nền dân chủ xhcn đầu tiên: 1917 (liên xô)
+- hình thái thực hiện dân chủ: lĩnh vực kinh tế
+- chức năng qtr nhất và khó khăn nhất của nn xhcn là chức năng quản lí kinh tế
+- nc ta đổi tên cnxhcn 1976
+- dân chủ trực tiếp và dân chủ gián tiếp
+Nội dung
+- Quan niệm về dân chủ: tk7-6 tcn, quyền lực thuộc về ndan
+- 3 cách của mác, 2 cách của hcm
+- dân chủ trên kte, ctri, vhxh (phân biệt)
+- Phân biệt các đặc trưng dân chủ là chính
+- Nguyên nhân sâu xa sự ra đời nhà nước
+- chức năng nhà nước: theo nguyên tắc (đảng, nn, các tổ chức ctri xh), theo tính chất, theo góc độ quyền lực
+- Bản chất nn: mang bản chất gccn, nd lđong, mang tính chất dân tộc
+- Quan điểm phi mác xít: nhằm che đậy bc gc của nn, thiếu khoa học, che đậy bc gc thống trị
+- Nhà nước ra đười: xh của giai cấp và đấu tranh giai cấp, luôn bve lợi ích gc thống trị -> qli xh
+- Trung tâm của hệ thống ctri: nhà nước, (ttam của hệ thống ctri xhcn: Đảng)
+- Chương 5: cơ cấu xh, giai cấp
+Từ điển
+- Trong mọi thười đại lịch sử, cơ cấu xh….
+- Liên minh gc ở vn: liên minh công-nông và các tầng lớp nhân dân lđ
+- Không 1 thế lực đen tối đứng vững được -> Lênin
+- Nguyên tắc cao nhất chuyên chính vô sản: liên minh gcvs và nông dân
+- Quy luật liên minh ở vn vừa phổ biến, vừa đặc thù
+- Ở vn: cơ cấu xã hội gc đa dạng <- đơn giản -> đh 6
+- Tăng cường liên minh giai cấp công nhân nông dan, đội ngũ tri thức, đội ngũ doanh nhân -> đh 12
+- Ở vn: có thêm đội ngũ doanh nhân
+- Trong tkqd: ctri  -> liên minh kinh tế
+- Nội dung kinh tế trong liên minh: thỏa mãn tàng lớp gc khác
+- Nội dung
+- 3 nguyên tắc quy luật biến đổi cc xhgc
+- Vai trò của từng giai cấp, tầng lớp ở vn
+- Chương 6:
+Từ điền
+- Tất cả mọi tôn giáo chẳng qua là phản ánh hư ảo hiện thực khách quan -> Ăngghen
+- Tôn giáo là thuốc phiện của ndan -> mác
+- Tín ngưỡng và tôn giáo là thỏa mãn tinh thần, giao thoa nhưng không đồng nhất
+- Tín ngưỡng tôn giáo ở vn có tính đặc thù: diễn biến hòa bình
+- Mối quan hệ dân tộc: qgia -> dân tộc
+Nội dung
+- Cương lĩnh dân tộc có 3 điều:
+- Tự quyết cơ bản nhất là chính trị
+- Tự quyết của các dân tộc là tự quyết con đường mình đi
+- liên hiệp là liên hiệp dtoc và qgia
+- 6 đặc điểm dtoc VN
+- Chính sách nhà nước cho dân tộc: tất cả lĩnh vực
+- Chương 7: Gia đình
+Câu nói
+- Nếu không giải phóng phụ nữ thì cnxh gp 1 nửa -> hcm
+- xh tốt thì gđ mới tốt -> hcm
+- Gia đình là hạt nhân -> hcm, mác -> tế bào, đảng -> tế bào lành mạnh
+- T240: Qh vợ chồng, cha mẹ, con cái là gia đình
+- T242: Hạt nhân của xã hội là gia đình
+- T245: …nếu không giải phóng… thì là 1 nửa
+- chế độ tư hữu
+- T251: nền kte xh hóa quy mô lớn
+- T251: nuôi dạy con cái thành cv của xh -> ăgghen
+- T251: nền kte tư nhân thành ngành lđ xh
+- T252: chế độ tư hữu
+- T254: Nếu tình yêu phai nhạt thì quyền tự do ly hôn
+- T255: lúc nào thì điền đàn ông đàn bà, người chồng người vợ
+- Chế độ 1 vợ 1 chồng
+- xd gia đình vn
+- xd gia đình tổ ấm
+- Trong xh nguyên thủy: gia đình tập thể (gia đình huyết tộc, cặp đôi,...)
+- tkqd: gđ truyền thống -> gđ hạt nhân
+- muốn ptrien gđ thì gđ hạt nhân + tiếp thu tiến bộ (không lq gì đến xd nông thôn mới)
+- Chức năng giáo dục, nội trợ -> chức năng xã hội hóa
+- Nội dung
+-Gia đình là gì, 
+-Phân biệt chức năng và vai trò của gia đình
+- xd trên 3 mqh (hôn nhân huyết thống nuôi dưỡng)
+- Lsu ptrien gia đình (gđ tập thể (mẫu hệ), gđ cá thể (ra đời khi tư hữu))
+- Nói trong gia đình (người chồng người vợ), trong xã hội (đàn ông đàn bà)
+*******
+-	Xu hướng dân tộc: 2
+- Dân tộc hiểu theo mấy nghĩa: 2
+- Dân tộc hiểu theo nghĩa dtoc-qgia: 5 đặc trưng
+- nghĩa của cnxh: 4 nghĩa
+- Giải quyết tôn giáo thời kỳ quá độ: 4
+- Chính sách tôn giáo: 5
+- Quy luật cơ cấu xh-giai cấp: 3
+- 1991: 6 đặc trưng, đh 11: 8 đặc trưng
+- Gia đình là tế bào tự nhiên cơ bản của xh, một đơn vị cơ sở
+- “Gia đình một vợ một chồng không phải là kết ...... mà là sự nô dịch của giới này đối với giới kia”
+- gia đình à cộng đồng ch đầu tiên, đáp ứng nhu cầu tình cảm
+- gia đình huyết tộc thì hôn nhân bị loại trừ
+- Nền tảng gia đình: hôn nhân, cấp bậc: huyết thống
+- Tki lênin: trước cmt10 - 1924
+- Stalin: 1924-1953
+- Bộ tư bản (1867)
+- Công xã pari (1971): nhà nước xhcn đầu tiên
+- Chống Đuyrinh (1871)
+- TQ: tki đổi mới 1978
+- Mác và Ăngghen ptrien cnxhkh: 48-95
+- “Nguyên tắc cao nhất ccvs” -> lênin
+- “giai cáp tư sản trong tki thống trị” -> tuyên ngôn đảng côgnj sản
+- “đkien ptrien tự do cho tca mng...” -> tuyên ngôn
+- “gia đình cá thể là 1 trong ….” -> ăngghen
+- “bộ máy trấn áp đb là n….” ->lênin
+-“không nghi ngờ gì nữa...” -> lênin
+“không 1 thế lực đen tối nào đứng vững được...” -> lênin
+- “tư liệu sx thành tài sản chung” -> ăngghe
+- Mác (1818-1883), Ăngghen (1820-1895), Lênin (1870-1924)
+- Ở phương tây dtoc xhien từ pthuc tbcn từ phong kiến
+- phi mác xít: che giấu bản chất thực nn và thiếu khoa học
+
+
+
