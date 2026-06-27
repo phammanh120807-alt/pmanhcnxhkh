@@ -204,10 +204,13 @@ Câu nói
 - Dân tộc hiểu theo mấy nghĩa: 2
 - Dân tộc hiểu theo nghĩa dtoc-qgia: 5 đặc trưng
 - nghĩa của cnxh: 4 nghĩa
+- cnxh ptrien qua mấy giai đoạn: 3
 - Giải quyết tôn giáo thời kỳ quá độ: 4
 - Chính sách tôn giáo: 5
+- cơ sở hình thành gia đình: 
 - Quy luật cơ cấu xh-giai cấp: 3
 - 1991: 6 đặc trưng, đh 11: 8 đặc trưng
+- Cương lĩnh 1991: 7 phương hướng, 2011: 8 phương 
 - Gia đình là tế bào tự nhiên cơ bản của xh, một đơn vị cơ sở
 - “Gia đình một vợ một chồng không phải là kết ...... mà là sự nô dịch của giới này đối với giới kia”
 - gia đình à cộng đồng ch đầu tiên, đáp ứng nhu cầu tình cảm
@@ -231,6 +234,8 @@ Câu nói
 - Mác (1818-1883), Ăngghen (1820-1895), Lênin (1870-1924)
 - Ở phương tây dtoc xhien từ pthuc tbcn từ phong kiến
 - phi mác xít: che giấu bản chất thực nn và thiếu khoa học
+- Đất nước ta chưa bao giờ có được Cơ đồ, tiềm lực, vị thế và uy tín quốc tế như ngày này
+- 
 
 
 
